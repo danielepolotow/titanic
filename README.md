@@ -11,5 +11,3 @@ De onde vieram os passageiros?
 Quem estava sozinho e quem estava com a família?
 Que fatores ajudaram alguém a sobreviver ao naufrágio?
 
-
-.
